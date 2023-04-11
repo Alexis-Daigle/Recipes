@@ -1,4 +1,4 @@
-## Recipes
+## OverNight Waffles
 
 
 # Ingredients
