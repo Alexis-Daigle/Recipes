@@ -14,12 +14,14 @@ Ingredients:
 - 1/2 cup of Milk
 - 2 table spoons of butter.
 
-Start by mixing the flour, baking powder, salt and sugar in a big bowl. 
-Next warm up the butter and milk in a pan or microwave until the butter is melted.
-Mix in the butter and milk to the dry stuff in the big bowl.
-In a small bowl, beat and mix the 2 eggs and the vanilla.
-Mix in the eggs and vanilla to the rest until everything is smooth.
+1. Start by mixing the flour, baking powder, salt and sugar in a big bowl.
+2. Warm up the butter and milk in a pan or microwave until the butter is melted.
+    (Microwave: around 40 seconds on high)
+3. In a small bowl, beat and mix the 2 eggs and the vanilla.
+4. Add the eggs and Vanilla to the Flour mix. 
+5. Mix in the butter and milk in small increments until everything is mixed well.
+6. Pour the mix in cake pan and place in over for 15 to 20 minutes.
 
-Pour the mix in cake pan and place in over for 15 to 20 minutes.
+Makes one small cake or about 8-9 cupcakes.
 
 Enjoy.
