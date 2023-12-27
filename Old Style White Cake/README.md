@@ -4,7 +4,7 @@
 
 Pre-heat you oven at 375 degres and prepare a small cake pan or cup cake pan.
 
-Ingredients:
+## Ingredients:
 - 2 eggs
 - 1 cup of sugar
 - 2 tea spoons of vanilla extract
