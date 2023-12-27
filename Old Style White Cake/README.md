@@ -1,6 +1,6 @@
 # An old style white cake
 
-## The recipe was given to me from my grand mother. She used to prepare this cake in the 1940s and still makes one from time to time. Easy to bake.
+## The recipe was given to me from my grand mother. She used to prepare this cake in the 1940s and still makes it from time to time. Easy to bake.
 
 Pre-heat you oven at 375 degres and prepare a small cake pan or cup cake pan.
 
