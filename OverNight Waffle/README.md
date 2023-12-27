@@ -20,7 +20,8 @@
 5. After getting a consistant mix, scrape the sides of the bowl to make sure nothing is left unmixed,
 6. Let the mixure rest for 10 minutes for the instant yeast to activate.
 7. Add cling film to the top of the bowl and place in the refrigerator overnight.
+8. Optional(you can add crushed maple candy or chocolate chips to the mix before cooking.)
 
-Best used after beeing in the fridge for 12 to 24 hours.
+Best used after beeing in the fridge for 12 to 24 hours, can be used as soon as 4 hours.
 
-Serve with Maple Sirup!
+Serve with Maple Sirup.
