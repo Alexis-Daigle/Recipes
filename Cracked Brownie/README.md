@@ -1,6 +1,7 @@
 # A receipe for some Chocolate Crinkle cookies. Taken and modified from All Reciepies. Yields around 70 cookies.
 
 ## Ingredients:
+
   1 cup unsweetened cocoa powder
   2 cups white sugar
   1/2 cup vegetable oil
