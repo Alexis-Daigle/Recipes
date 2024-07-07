@@ -25,6 +25,8 @@
 8. Grease the pan or cut into smaller pieces for the buns.
 9. Bake at 350F until golden brown, brush with butter while warm for a soft crust.
 
+One loaf equals aprox. 2460 calories.
+
 
 ## Naan Alternative:
 
