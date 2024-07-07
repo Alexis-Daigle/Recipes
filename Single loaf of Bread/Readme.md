@@ -9,7 +9,7 @@
 * 4 tbsp / 60 g milk 2% or higher
 * 1 whisked egg at room temp
 * 1 tsp / 5 g salt
-* 5 cups / 600 g bread flour or all-purpose
+* 4.5 cups / 550 g bread flour or all-purpose
 * 2 tbsp / 60 g ghee or melted unsalted butter
 
 
@@ -17,12 +17,13 @@
 
 1. In a cup place the sugar and yeast, then add the warm water. Let it sit until the yeast has bloomed.
 2. In a seperate bowl, mix the flour and salt, sifting is recommended.
-3. Make a hole in flour and add the milk, the egg, the yeast mix and the melted butter.
-4. Mix everything together until it makes a uniform ball
-5. place in a container or leave in the bowl until the dough rises to twice the size.
-6. Once its ready, knead the dough and prep it for your pan.
-7. Grease the pan or cut into smaller pieces for the buns.
-8. Bake at 350F until golden brown, brush with butter while warm for a soft crust.
+3. Melt the butter in the microwave or over.
+4. Make a hole in flour and add the milk, the egg, the yeast mix and the melted butter.
+5. Mix everything together until it makes a uniform ball. Add more flour or milk until you get the desired consistancy.
+6. place in a container or leave in the bowl until the dough rises to twice the size.
+7. Once its ready, knead the dough and prep it for your pan.
+8. Grease the pan or cut into smaller pieces for the buns.
+9. Bake at 350F until golden brown, brush with butter while warm for a soft crust.
 
 
 ## Naan Alternative:
