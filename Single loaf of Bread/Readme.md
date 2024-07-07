@@ -6,7 +6,7 @@
 * 2 tsp / 8 g instant / rapid rise yeast
 * 1 cup / 250 ml warm tap water (~40°C/105°F in temperature)
 * 2 tbsp / 30 g white sugar
-* 4 tbsp / 60 g milk 2% or higher
+* 1/4 cup / 60 ml milk 2% or higher
 * 1 whisked egg at room temp
 * 1 tsp / 5 g salt
 * 4.5 cups / 550 g bread flour or all-purpose
