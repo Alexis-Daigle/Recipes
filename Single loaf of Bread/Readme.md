@@ -1,4 +1,4 @@
-## A recipe for making a single loaf of bread or about 6 buns.
+## A recipe for making a energy dense single loaf, 2 small loafs or about 10 buns.
 
 
 ## Ingredients:
