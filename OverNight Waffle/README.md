@@ -3,10 +3,10 @@
 
 ## Ingredients
 
-- 1 1/3 cups milk
+- 1 1/2 cups milk
 - 1 stick of butter (125ml, non salted)
 - 2 cups of all purpose flour
-- 1 1/2 tablespoons of sugar
+- 1/4 cup of sugar
 - 1 teaspoon salt
 - 1 1/2 teaspoon of rapid rise yeast or Instant Yeast
 - 2 large eggs
